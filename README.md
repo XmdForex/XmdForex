@@ -38,8 +38,7 @@ XmdForex's Category:
 
 Introduce from Github: https://github.com/XmdForex/XmdForex
 
-Introduce from Linkedin: https://www.linkedin.com/posts/xmdforex_xmdforex-%E0%A4%95%E0%A4%AA%E0%A4%A8-%E0%A4%95-%E0%A4%A4%E0%A4%B9%E0%A4%A4-xmdforex-%E0%A4%B5%E0%A4%AC%E0%A4%B8%E0%A4%87%E0%A4%9F-%E0%A4%95-activity-6875112403101732864-y1L-
+Introduce from Linkedin: https://www.linkedin.com/posts/xmdforex_india-linkedin-activity-6875114772329840640-AzZq/
 
 Introduce from Facebook: https://www.facebook.com/XmdForex/posts/416271366856717
-
 
