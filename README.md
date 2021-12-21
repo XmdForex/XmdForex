@@ -45,17 +45,3 @@ Introduce from Linkedin: https://www.linkedin.com/posts/xmdforex_india-linkedin-
 Introduce from Facebook: https://www.facebook.com/XmdForex/posts/416271366856717
 
 
-FireFox NewThang's Extensions: https://addons.mozilla.org/en-US/firefox/user/17013892/
-
-Google's giới thiệu: https://newthangcom.business.site/
-
-Trang giới thiệu:  https://newthangcom.business.site/posts/3105556780170379996?hl=vi
-
-Quora giới thiệu: https://www.quora.com/What-do-you-know-about-NewThang-com-1/answer/Web-Ph%E1%BB%91?prompt_topic_bio=1
-
-Reddit: https://www.reddit.com/user/NewThang_com
-
-Google News: https://news.google.com/publications/CAAqBwgKMMTfqwswwerDAw?hl=en-SG&gl=SG&ceid=SG:en
-
-
-
